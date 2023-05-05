@@ -59,9 +59,7 @@ It will then show your monthly debt to income ratio and loan to value ratio and 
 
 Mike Nguyen
 
-Email: nguyen.mikeq@gmail.com
 
-LinkedIn: https://www.linkedin.com/in/mike-nguyen-6899554/
 
 ---
 
